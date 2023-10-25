@@ -1,1 +1,3 @@
-# diana2129b.github.io
+Hello,
+
+For my Twine story I wanted to depict a small narrative of Anne Boleyn. Many people will overlook her name due to the multiple marriages King Henry III went through over the course of his reign. However, her life story holds major historical significance for English history. Her resistance to refuse becoming a mistress led to constant persistence of King Henry III that eventually caused the English Reformation.  If it wasn’t for her determination & attitude, the outcome of World history would have a completely different narrative. Although, the outcome of her life wasn’t one that would be expected, she left a Tudor legacy through the birth of her daughter Queen Elizabeth I. My story holds a brief summary to pique the interests of users to learn more about her life story. I hope you enjoy!
